@@ -1,0 +1,1 @@
+# catalogo-smart-industria
